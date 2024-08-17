@@ -1,9 +1,10 @@
 # Matías Espinoza
 
-**Teléfono:** (+56 9) 28352236  
+**Teléfono:** (+56 9) 2835 2236  
 **Ubicación:** Valparaíso, Chile  
-**LinkedIn:** [Matias Alejandro Espinoza Veliz](https://www.linkedin.com/in/matias-alejandro-espinoza-veliz-a2b0031b4/)
-**Correo Electrónico:** Matiasespinoza1616@gmail.com
+**LinkedIn:** [Matías Alejandro Espinoza Veliz](https://www.linkedin.com/in/matias-alejandro-espinoza-veliz-a2b0031b4/)  
+**Correo Electrónico:** matiasespinoza1616@gmail.com
+
 
 ---
 
